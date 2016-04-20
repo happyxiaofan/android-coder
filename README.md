@@ -4,4 +4,4 @@
 ![](http://7xkjk9.com1.z0.glb.clouddn.com/app-1.png)
 ![](http://7xkjk9.com1.z0.glb.clouddn.com/app-2.png)
 ![](http://7xkjk9.com1.z0.glb.clouddn.com/app-3.png)
-![](http://7xkjk9.com1.z0.glb.clouddn.com/app-3.png)
+![](http://7xkjk9.com1.z0.glb.clouddn.com/app-4.png)
